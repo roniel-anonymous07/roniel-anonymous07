@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do 👨🏻‍💻 Roniel_<Dev>_Anonymous Trader 😁
+## Bem-vindo(a) ao perfil do 👨🏻‍💻 Roniel<Dev>;Anonymous_|🪙Trader 
 
  <div>
    <a href="https://github.com/roni l-anonymous07">
